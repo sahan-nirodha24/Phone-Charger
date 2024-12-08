@@ -1,1 +1,1 @@
-# This Page Showing For The Mobile Phones Super Charging Animation
+# This Page Shows For The Mobile Phones Super Charging Animation
